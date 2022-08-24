@@ -1,2 +1,2 @@
 # myfirststep
-I love ☕ 🍕, and 💃
+I love ☕, 🍕, and 💃
