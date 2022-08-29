@@ -1,3 +1,3 @@
 # myfirststep
 I love ☕, 🍕, and 💃
-Also cinema and car
+Also :cinema: and :car:
